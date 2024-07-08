@@ -2,7 +2,7 @@
 ![furinagi](https://media.discordapp.net/attachments/1175640482433470514/1259782573081755818/0-1.png?ex=668cef73&is=668b9df3&hm=99471f89e6ca2522a59d8be4ac8a3c4c56ff0a41bee817033cac73ea1ca6865a&)
 
 
-<h3 align="center">❛ Streetward rambler, a vain beauty? Hah... my foot. ❜</h1>
+<h3 align="center">❛ All The World's a Stage ! ❜</h1>
 <h4 align="center">——at osc , phighting , hyv , or docks (usually)</h3>
 <h5 align="center">c+h, we dont bite eheh
 
