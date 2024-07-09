@@ -1,4 +1,4 @@
-![furinagi](https://media.discordapp.net/attachments/1175640482433470514/1259782573081755818/0-1.png?ex=668cef73&is=668b9df3&hm=99471f89e6ca2522a59d8be4ac8a3c4c56ff0a41bee817033cac73ea1ca6865a&)
+![furinabanner](https://media.discordapp.net/attachments/1175640482433470514/1260140397452066976/Untitled190_20240709114611.png?ex=668e3cb3&is=668ceb33&hm=57d52b96012a4f3caed356b89e4b04b422730291f87b66ad7fec65c198eb55a5&)
 
 
 <h3 align="center">❛ All The World's a Stage ! ❜</h1>
